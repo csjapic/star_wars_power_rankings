@@ -9,7 +9,7 @@
 7. Solo: A Star Wars Story
 8. Star Wars: The Force Awakens
 9. Star Wars: Attack of the Clones
-10. Star Wars: The Last Jedi / Star Wars: Rise of Skywalker
+10. Star Wars: The Last Jedi
 
 
 ## Discussion
